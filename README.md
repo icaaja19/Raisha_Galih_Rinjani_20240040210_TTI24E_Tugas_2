@@ -1,0 +1,1 @@
+# Raisha_Galih_Rinjani_20240040210_TTI24E_Tugas_2
